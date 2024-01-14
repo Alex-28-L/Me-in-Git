@@ -6,3 +6,4 @@
 тел: [8 800 888-00-00](+78008880000)\
 mail: [hello@alex.ru](hello@alex.ru)
 
+![фото](https://cs10.pikabu.ru/post_img/big/2018/02/05/5/1517811626116793741.png)
